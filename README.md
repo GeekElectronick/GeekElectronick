@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GeekElectronick
-- 👀 Follow me at https://geekelectronick.com
+- 👀 Follow me at https://geekelectronick.com/
 - 📫 Email me at weinick92@gmail.com
 - 💼 This is what I do:
   - 📌 Great Leader, Amazing Follower
