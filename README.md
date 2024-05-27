@@ -7,7 +7,7 @@
   - 📈 Project Manager
   - 💻 Software Developer
   - 🔌 Electronics Engineer
-  - 🌱 Garndener
+  - 🌱 Gardener
   - 🎸 Acoustic Fingerstyle Guitarist
   - 🔧 Home DIY Enthusiast
   - 👓 Complete Geek
